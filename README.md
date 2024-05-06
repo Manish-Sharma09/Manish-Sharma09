@@ -20,7 +20,7 @@ I'm currently sharpening my skills in:
 
 ## How to Reach Me
 
-- 📫 You can reach me via email at [your.email@example.com].
+- 📫 You can reach me via email at manishsharma6501@gmail.com.
 - 🐦 Connect with me on | [LinkedIn](https://www.linkedin.com/in/manish-sharma-10a13b23a/) | [Portfolio Website](https://companydemo.in/demos/immanishsharma/)
 
 ## Fun Fact
